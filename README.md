@@ -6,7 +6,7 @@ Bi,poly, and abrosexual
 
 Maybe demisexual and demiromatic?
 
-Taken by two Dez and Tom<3 I love them so much❤️❤️❤️
+Taken by two Kazumi(Dez) and Tom<3
 
 I have a liking to people who are nice and caring 
 
