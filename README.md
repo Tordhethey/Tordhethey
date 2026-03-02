@@ -1,16 +1,16 @@
 https://tordspage.carrd.co/
 
-https://en.pronouns.page/@Tord-He.They
+https://en.pronouns.page/@Mxf10s0_Mult1fxn
 
-Part of the LGBTQ+ and Furry commuinty
+Part of the LGBTQ+ and furry commuinty
 
 Trans,demi-boy, and genderfluid
 
-Bi,poly, and abrosexual
+Gay/maybe pan and abrosexual
 
-Maybe demisexual and demiromatic?
+Demisexual and demiromatic
 
-Taken by two Kazumi(Dez) and Tom<3
+Taken by ♡♡♡❤️💍C/L🩶❤️<333♡♡♡
 
 I have a liking to people who are nice and caring 
 
