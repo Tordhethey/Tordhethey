@@ -4,13 +4,13 @@ https://en.pronouns.page/@Mxf10s0_Mult1fxn
 
 Part of the LGBTQ+ and furry commuinty
 
-Trans,demi-boy, and genderfluid
+Demi-boy, and genderfluid
 
-Gay/maybe pan and abrosexual
+Abrosexual
 
 Demisexual and demiromatic
 
-Taken by ♡♡♡❤️💍C/L🩶❤️<333♡♡♡
+Taken by ♡♡♡❤️C/L💍<333♡♡♡
 
 I have a liking to people who are nice and caring 
 
