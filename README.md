@@ -2,16 +2,16 @@ https://tordspage.carrd.co/
 
 https://en.pronouns.page/@Mxf10s0_Mult1fxn
 
-Part of the LGBTQ+ and furry commuinty
+Part of the LGBTQ+ community, therian/otherkin/fictionkin community, and furry commuinty
 
-Demi-boy, and genderfluid
+Demi-boy,trans ftm,bunny,fox,cat(bunny part only rp wise) and genderfluid
 
-Abrosexual
+Gay/pan maybe, and abrosexual
 
 Demisexual and demiromatic
 
-Taken by ♡♡♡❤️C/L💍<333♡♡♡
+Taken by ♡♡❤️C/L💍<33♡♡ ♡1/22/26♡
 
 I have a liking to people who are nice and caring 
 
-Just don't be toxic or joke about stuff you shouldn't. Don't be racist, LGBTQ+ phobic, or Furry phobic. If you are don't interact with me thanks
+Just don't be toxic or joke about stuff you shouldn't. Don't be racist, LGBTQ+ community phobic,therian/otherkin/fictionkin community phobic or furry commuinty phobic. If you are don't interact with me thanks
