@@ -10,7 +10,7 @@ Gay/pan maybe, and abrosexual
 
 Demisexual and demiromatic
 
-Taken by ♡♡❤️C/L💍<33♡♡ ♡1/22/26♡
+C🩶💍
 
 I have a liking to people who are nice and caring 
 
