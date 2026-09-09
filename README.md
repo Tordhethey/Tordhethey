@@ -1,16 +1,16 @@
-https://tordspage.carrd.co/
+9/8
 
-https://en.pronouns.page/@Mxf10s0_Mult1fxn
+https://en.pronouns.page/@finns_mxf777
 
-Part of the LGBTQ+ community, therian/otherkin/fictionkin community, and furry commuinty
+Part of the LGBTQ+ community,therian/otherkin/fictionkin community,and furry commuinty
 
-Demi-boy,trans ftm,bunny,fox,cat(bunny part only rp wise) and genderfluid
+Demi-boy,ftm,bunny,fox,cat,and genderfluid
 
 Gay/pan maybe, and abrosexual
 
 Demisexual and demiromatic
 
-C🩶💍
+Finn💝4/25/26
 
 I have a liking to people who are nice and caring 
 
