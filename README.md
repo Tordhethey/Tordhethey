@@ -10,7 +10,8 @@ Gay/pan maybe, and abrosexual
 
 Demisexual and demiromatic
 
-Finn💝4/25/26
+Finn❤4/25/26💝 Son:TwoTime💕Dad:A❤Sis:Tori🩷
+Bff:E💛Bsf:T💗
 
 I have a liking to people who are nice and caring 
 
